@@ -1,11 +1,10 @@
 ---
-title: "버마루비 추천 TOP5 구매 가이드"
-description: "붉은 심장을 품은 보석, 버마 AAA 루비"
+title: '버마루비 추천 TOP5 구매 가이드'
+description: '붉은 심장을 품은 보석, 버마 AAA 루비'
 date: 2026-02-25T14:11:00+09:00
-author: Moon
+author: 'Moon'
 categories: [shopping]
 tags: ["Top5", "shopping", "버마루비", "루비", "천연보석", "루비쥬얼리", "보석쇼핑", "AAA루비"]
----
 
 > 💦 이 포스팅은 파트너스 활동을 통해 일정액의 수수료를 제공받습니다. 💦
 
