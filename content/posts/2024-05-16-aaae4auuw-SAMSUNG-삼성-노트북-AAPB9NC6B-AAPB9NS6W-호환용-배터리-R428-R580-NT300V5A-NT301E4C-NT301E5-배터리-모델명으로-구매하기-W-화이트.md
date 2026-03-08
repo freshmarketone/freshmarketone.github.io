@@ -1,10 +1,10 @@
-﻿---
-title: "aa-ae4auuw  [10~30대 여성추천] SAMSUNG 삼성 노트북 AA-PB9NC6B AA-PB9NS6W 호환용 배터리 R428 R580 NT300V5A NT301 장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보"
+---
+title: 'aa-ae4auuw  [10~30대 여성추천] SAMSUNG 삼성 노트북 AA-PB9NC6B AA-PB9NS6W 호환용 배터리 R428 R580 NT300V5A NT301 장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보'
 date: 2024-05-16
-slug: "aaae4auuw-SAMSUNG-삼성-노트북-AAPB9NC6B-AAPB9NS6W-호환용-배터리-R428-R580-NT300V5A-NT301E4C-NT301E5-배터리-모델명으로-구매하기-W-화이트"
-author: Moon
-categories: [shopping]
-tags: [Top10, shopping, 장점, 추천, 추천제품, 구매가이드, 할인, 최저가격, 상품평, 후기, aa-ae4auuw]
+slug: 'aaae4auuw-SAMSUNG-삼성-노트북-AAPB9NC6B-AAPB9NS6W-호환용-배터리-R428-R580-NT300V5A-NT301E4C-NT301E5-배터리-모델명으로-구매하기-W-화이트'
+author: 'Moon'
+categories: ['shopping']
+tags: ['Top10', 'shopping', '장점', '추천', '추천제품', '구매가이드', '할인', '최저가격', '상품평', '후기', 'aa-ae4auuw']
 ---
 
 <p data-nosnippet>💦 💦 💦 파트너스 활동을 통해 일정액의 수수료를 제공받습니다.</p>

@@ -2,9 +2,10 @@
 layout: single
 title: '워시글로브  펫트루(PETRUE) 그루미 워시글로브 FOR BODY 반려동물용 전신목욕장갑, 2개, 10개입 장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는'
 author: 'Moon'
-categories: [shopping]
-tags: ["Top5", "shopping", "반려동물목욕", "워시글로브", "펫트루", "그루미워시글로브", "반려동물용품", "간편목욕"]
+categories: ['shopping']
+tags: ['Top5', 'shopping', '반려동물목욕', '워시글로브', '펫트루', '그루미워시글로브', '반려동물용품', '간편목욕']
 pin: true
+---
 
 💦파트너스 활동을 통해 일정액의 수수료를 제공받습니다.💦
 

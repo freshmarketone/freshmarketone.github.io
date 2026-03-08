@@ -3,8 +3,9 @@ title: '캐리어ctv-q1452wfx  [10~50대 여성추천]  [정품] 캐리어천정
 date: 2024-03-10
 slug: '캐리어ctvq1452wfx--정품-캐리어천정형필터-CTVQ1101FX-CTVQ1102FX-CTVQ1104FX-CTVQ1301FX-CTVQ1302FX-CTVQ1451FX-CTVQ1452FX-천정형-정품-필터-1개-'
 author: 'Moon'
-categories: [shopping]
-tags: [Top10, shopping, 장점, 추천, 추천제품, 구매가이드, 할인, 최저가격, 상품평, 후기, 캐리어ctv-q1452wfx]
+categories: ['shopping']
+tags: ['Top10', 'shopping', '장점', '추천', '추천제품', '구매가이드', '할인', '최저가격', '상품평', '후기', '캐리어ctv-q1452wfx']
+---
 
 **캐리어 CTV-Q1452WFX: 냉방의 최고**
 

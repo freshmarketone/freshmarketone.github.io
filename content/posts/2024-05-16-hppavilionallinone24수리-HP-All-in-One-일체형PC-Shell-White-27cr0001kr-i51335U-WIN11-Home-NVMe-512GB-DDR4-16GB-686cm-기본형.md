@@ -1,10 +1,10 @@
-﻿---
-title: "hppavilionallinone24수리  [10~30대 여성추천] HP All in One 일체형PC Shell White 27-cr0001kr (i5-1335U WIN11 Home NVMe 장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보"
+---
+title: 'hppavilionallinone24수리  [10~30대 여성추천] HP All in One 일체형PC Shell White 27-cr0001kr (i5-1335U WIN11 Home NVMe 장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보'
 date: 2024-05-16
-slug: "hppavilionallinone24수리-HP-All-in-One-일체형PC-Shell-White-27cr0001kr-i51335U-WIN11-Home-NVMe-512GB-DDR4-16GB-686cm-기본형"
-author: Moon
-categories: [shopping]
-tags: [Top10, shopping, 장점, 추천, 추천제품, 구매가이드, 할인, 최저가격, 상품평, 후기, hppavilionallinone24수리]
+slug: 'hppavilionallinone24수리-HP-All-in-One-일체형PC-Shell-White-27cr0001kr-i51335U-WIN11-Home-NVMe-512GB-DDR4-16GB-686cm-기본형'
+author: 'Moon'
+categories: ['shopping']
+tags: ['Top10', 'shopping', '장점', '추천', '추천제품', '구매가이드', '할인', '최저가격', '상품평', '후기', 'hppavilionallinone24수리']
 ---
 
 <p data-nosnippet>💦 💦 💦 파트너스 활동을 통해 일정액의 수수료를 제공받습니다.</p>

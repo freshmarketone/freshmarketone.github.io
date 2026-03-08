@@ -1,10 +1,10 @@
-﻿---
-title: "lenovothinkpadc13yogachromebook  [10~30대 여성추천] 레노버 13인치 씽크패드 ThinkPad X1 Fold Gen 1 i5-L16G7 8GB 256GB Win10 H 미사용 정 장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보"
+---
+title: 'lenovothinkpadc13yogachromebook  [10~30대 여성추천] 레노버 13인치 씽크패드 ThinkPad X1 Fold Gen 1 i5-L16G7 8GB 256GB Win10 H 미사용 정 장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보'
 date: 2024-05-16
-slug: "lenovothinkpadc13yogachromebook-레노버-13인치-씽크패드-ThinkPad-X1-Fold-Gen-1-i5L16G7-8GB-256GB-Win10-H-미사용-정품-리퍼노트북"
-author: Moon
-categories: [shopping]
-tags: [Top10, shopping, 장점, 추천, 추천제품, 구매가이드, 할인, 최저가격, 상품평, 후기, lenovothinkpadc13yogachromebook]
+slug: 'lenovothinkpadc13yogachromebook-레노버-13인치-씽크패드-ThinkPad-X1-Fold-Gen-1-i5L16G7-8GB-256GB-Win10-H-미사용-정품-리퍼노트북'
+author: 'Moon'
+categories: ['shopping']
+tags: ['Top10', 'shopping', '장점', '추천', '추천제품', '구매가이드', '할인', '최저가격', '상품평', '후기', 'lenovothinkpadc13yogachromebook']
 ---
 
 <p data-nosnippet>💦 💦 💦 파트너스 활동을 통해 일정액의 수수료를 제공받습니다.</p>

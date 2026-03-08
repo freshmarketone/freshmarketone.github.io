@@ -3,8 +3,9 @@ title: 'kvm스위치mt-viki  [40~50대 여성추천]  Navceker 듀얼 모니터 
 date: 2024-04-02
 slug: 'kvm스위치mtviki--Navceker-듀얼-모니터-DP-KVM-스위치-4K-120Hz-4x2-USB-30-HDMI-KVM-스위치-4-인-2-아웃-8K-60Hz-혼합-디스플레이-2-모니터-4-컴-ZYSK808-'
 author: 'Moon'
-categories: [shopping]
-tags: [Top10, shopping, 장점, 추천, 추천제품, 구매가이드, 할인, 최저가격, 상품평, 후기, kvm스위치mt-viki]
+categories: ['shopping']
+tags: ['Top10', 'shopping', '장점', '추천', '추천제품', '구매가이드', '할인', '최저가격', '상품평', '후기', 'kvm스위치mt-viki']
+---
 
 ## KVM 스위치 MT-Viki: 원활한 다중 PC 관리
 

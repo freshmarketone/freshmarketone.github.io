@@ -3,8 +3,9 @@ title: 'kvmhdmi4x1quadmulti-viewer  [40~50대 여성추천]  Navceker 듀얼 모
 date: 2024-04-02
 slug: 'kvmhdmi4x1quadmultiviewer--Navceker-듀얼-모니터-DP-KVM-스위치-4K-120Hz-4x2-USB-30-HDMI-KVM-스위치-4-인-2-아웃-8K-60Hz-혼합-디스플레이-2-모니터-4-컴'
 author: 'Moon'
-categories: [shopping]
-tags: [Top10, shopping, 장점, 추천, 추천제품, 구매가이드, 할인, 최저가격, 상품평, 후기, kvmhdmi4x1quadmulti-viewer]
+categories: ['shopping']
+tags: ['Top10', 'shopping', '장점', '추천', '추천제품', '구매가이드', '할인', '최저가격', '상품평', '후기', 'kvmhdmi4x1quadmulti-viewer']
+---
 
 **4중 HDMI 쿼드 멀티뷰어로 시청 경험 업그레이드**
 

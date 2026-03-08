@@ -3,8 +3,9 @@ title: 'kvm스위치썬더볼트  [40~50대 여성추천]  USB KVM 스위치 버
 date: 2024-04-02
 slug: 'kvm스위치썬더볼트--USB-KVM-스위치-버튼이-없는-USB-스위치-두-대의-PC를-함께-사용-스위처-KVM-스위치-Windows10-PC-키보드-마우스-프린터-2'
 author: 'Moon'
-categories: [shopping]
-tags: [Top10, shopping, 장점, 추천, 추천제품, 구매가이드, 할인, 최저가격, 상품평, 후기, kvm스위치썬더볼트]
+categories: ['shopping']
+tags: ['Top10', 'shopping', '장점', '추천', '추천제품', '구매가이드', '할인', '최저가격', '상품평', '후기', 'kvm스위치썬더볼트']
+---
 
 **썬더볼트 kvm 스위치: 워크스페이스의 혁명**
 
